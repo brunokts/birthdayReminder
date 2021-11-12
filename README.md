@@ -1,3 +1,3 @@
 # Birthday Reminder
 
-🤯 How i can remenber so many birthday without fb? 🤯
+🤯 How i can remenber so many birthdays without fb? 🤯
